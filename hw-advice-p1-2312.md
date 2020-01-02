@@ -24,6 +24,6 @@ You can traveling and think about your problem after that.
 2. After reading my favarite book, I have a lot of information about my country, historical people - who has build this country, how hard have dependent and freedom. 
 3. Reading book important beacause there are many benefits of reading like: improve focus and concentration, memory , stress reduction, Better Writing Skills, Stronger Analytical Thinking Skills,
 4. To improve friendship with other people we can go on a picnic, eating together, talk more about ourself, help our friends when they have troubles, Be forgiving when they have mistakes.
-5. The picture that I love the most is Nghia's picture. He drew quite well, his picture tell us about what did he do and what will he do. I think my classmates have their own talent, to decided who is the most talented person, we should have a competition =))
+5. The picture that I love the most is Nghia's picture. He drew quite well, his picture tell us about what did he do and what will he do. I think my classmates have their own talent, to decide who is the most talented person, we should have a competition =))
 
 
