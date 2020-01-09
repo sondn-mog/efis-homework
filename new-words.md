@@ -19,3 +19,4 @@
 - are you having fun? no video games for a week
 - ahold
 - torture
+- it’s rude to leave food uneaten
