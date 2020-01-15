@@ -1,3 +1,10 @@
+1. Becoming an inspiration to other people very important because we can spread good things to other people and have someone to go with. For me, when I come to KHC event - an event that people collect trash on streets in HaNoi, i told to my friend that we have 110 people and we collect about about 3000 kg of trash, beside we can make more friends, eat vegetarian food. My friends surprise and they wanna go to KHC event next time.
+2. Choosing the right friends to surround yourself with very significant because they are who effect, strech, motivation you. You should lock for friends that have good qualities, positive and supportive.
+3. 
+
+
+
+---------------------------------------------------------------------------------------------------
 - Talk about the things you knew more about your classmates after the Circle Sharing time at class.  
 - Why do we need advices from other people? Who should we give adivices to?  
 - Did you learn anything from your mom and dad?  
