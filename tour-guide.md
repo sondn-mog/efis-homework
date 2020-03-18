@@ -8,6 +8,7 @@ ir-religious PP, Atheist, Religious PP, ideology, ancestor worship, deity worshi
 HCM mausoleum:  revolution, Founding Father, Prime minister
 Hoa Lo: how brutally they ruled VN
 Hanoi: Rising/flying up/ascending dragon, prosperous and powerful
+
 Nhà Đường (Tang dynasty), 
 Nhà Tần (Qin dynasty), 
 Nhà Tấn (Jin dynasty), 
