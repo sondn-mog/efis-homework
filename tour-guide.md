@@ -8,18 +8,19 @@ ir-religious PP, Atheist, Religious PP, ideology, ancestor worship, deity worshi
 HCM mausoleum:  revolution, Founding Father, Prime minister
 Hoa Lo: how brutally they ruled VN
 Hanoi: Rising/flying up/ascending dragon, prosperous and powerful
-Nhà Đường (Tang dynasty)
-Nhà Tần (Qin dynasty)
-Nhà Tấn (Jin dynasty)
-Đông Ngô (Eastern Wu)
-Nhà Nguyên (Yuan dynasty)
-Nhà Tống (Song dynasty)
-Nhà Minh (Ming dynasty)
-Nhà Thanh (Qing dynasty)
-Nhà Thương (Shang dynasty)
-Nhà Chu (Zhou dynasty)
-Nhà Tùy (Sui dynasty)
-Nhà Hạ (Xia dynasty)
+Nhà Đường (Tang dynasty), 
+Nhà Tần (Qin dynasty), 
+Nhà Tấn (Jin dynasty), 
+Đông Ngô (Eastern Wu), 
+Nhà Nguyên (Yuan dynasty), 
+Nhà Tống (Song dynasty), 
+Nhà Minh (Ming dynasty), 
+Nhà Thanh (Qing dynasty),  
+Nhà Thương (Shang dynasty), 
+Nhà Chu (Zhou dynasty), 
+Nhà Tùy (Sui dynasty), 
+Nhà Hạ (Xia dynasty), 
+Nhà Lương (Liang dynasty),
 HW 20/03: 
 Co 4 giai doan xâm lược 
 1. 111 TCN - 39: End by Trưng Sister,Su Ding (Tô Định) Thi sách, có giả thuyết khác là từ năm 207 BC.  Han dynasty.
