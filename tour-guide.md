@@ -25,8 +25,9 @@ HW 20/03:
 Co 4 giai doan xâm lược 
 1. 111 TCN - 39: End by Trưng Sister,Su Ding (Tô Định) Thi sách, có giả thuyết khác là từ năm 207 BC.  Han dynasty.
 39-34:  Ma Yuan(Mã Viện)
-2. 43 - 544: End by Lý Bí
-3. 603 - 938: End by Ngô Quyền (Đinh Bộ Lĩnh - loạn 12 xứ quân - Lê Long Đĩnh(mía trên đầu sư, Lê Ngọa Triều vì bị trĩ), Lê Hoàn,)
+2. 43 - 544: End by Lý Bí, từ 541 3 lần đánh quân Lương(Liang dynasty) 3 năm -> Vạn Xuân. Triệu Quang Phục. Triệu Việt Vương - 550. 570 Lý Phật Tử cướp
+602-930: Nhà Tùy (Sui dynasty) -> Nhà Đường (Tang dynasty) cực thịnh
+3. 603 - 938: End by Ngô Quyền (Đinh Bộ Lĩnh - loạn 12 xứ quân - Lê Long Đĩnh(mía trên đầu sư, Lê Ngọa Triều vì bị trĩ), Lê Hoàn, Lý Công Uẩn)
 4. 1407 - 1427: End By Lê Lợi (Hậu Lê, tiền Lê là Lê Hoàn)
 Sau đây thì đều đánh bại được
 Đồng hóa dân dân: chia nhỏ dễ cai quản, sưu cao thuế nặng, truyền đạo khổng, ăn mặc giống người TQ, lễ nghĩa. Đàn áp các cuộc khởi nghĩa, vơ vét của cải đồ quý hiếm. Bắt thương nhân, người tài giỏi như chế tạo súng Hồ Nguyên Trừng, kiến trúc sư Nguyễn An.
