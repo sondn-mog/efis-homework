@@ -1,3 +1,8 @@
+* 19/03/2020 *
+
+[Occupation](https://dictionary.cambridge.org/dictionary/english/occupation?q=Occupation "Sự chiếm hữu") of Vietnam by China
+1. First chinese domination of Vietnam (111BC - 39)
+
 * History
 ..* historical background
 /religion/architecture/street food (culinary)/activities
