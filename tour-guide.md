@@ -34,8 +34,8 @@ Sau đây thì đều đánh bại được
 Đồng hóa dân dân: chia nhỏ dễ cai quản, sưu cao thuế nặng, truyền đạo khổng, ăn mặc giống người TQ, lễ nghĩa. Đàn áp các cuộc khởi nghĩa, vơ vét của cải đồ quý hiếm. Bắt thương nhân, người tài giỏi như chế tạo súng Hồ Nguyên Trừng, kiến trúc sư Nguyễn An.
 --- HW 20/03/2020
 1. 
-- Undestand people and socities
-- Undestand change and how society we live in came to be
+- undestand people and societies
+- undestand change and how society we live in came to be
 - Develop the ability to assess evidence
 2. 
 - Alexandre de Rhodes and Portuguese missionaries have a lot of effort, to modify Roman alphabet with accents and signs to suit the particular consonants, vowel and tones of VietNamese.
