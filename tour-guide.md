@@ -6,7 +6,7 @@
 3. Third chinese domination of VN (602-938): Ngo Quyen's destruction Southen Han *armada*(áo giáp) at the *naval*(hải quân) Battle of Bạch Đằng river. This time remark a long freedom of VN thought our another dynastys: Dinh, Lê, Lý, Trần, Hồ.
 4. Fourth chinese domination of VN (1407 - 1427): a 20-year occupation by Ming dynasty army, Lê Lợi's defeat of the Chinese at Battle Tốt Động - Chúc Động and Battle Chi Lăng - Xương Giang. 
 After this time, VN prevented all invasion of chinese.
-
+5. Throughout the domiantion: Chinese try to assimilation VietNamese by force VNese people follow the living, clothing, ritual(nghi lễ). Chinese man wedding with VNese woman, keep hight tax. Last domination is most atrocities, Chinese take merchants, talents (Hồ Nguyên Trừng, Nguyễn An), literature, art of war book, he rare ...
 
 * History
 ..* historical background
