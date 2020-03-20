@@ -1,7 +1,12 @@
 * 19/03/2020 *
 
 [Occupation](https://dictionary.cambridge.org/dictionary/english/occupation?q=Occupation "Sự chiếm hữu") of Vietnam by China
-1. First chinese domination of Vietnam (111BC - 39)
+1. First chinese domination of Vietnam (111BC - 39): Chinese imperal incursions, follow by Han-Nanyue(Han - Nam Viet) war, established Han rule in VietNam. This was briefly interrupped by the *revolt* of Trung Sisters(40-43)
+2. Second chinese domination of VietNam(44-544): Ma Yuan (Ma Vien) defeated Trung Sisters. Ended by the *revolt*  Ly Nam De (Ly Bi), who led a *rebellion* taking advantage of internal *disorder*(rối loạn) in China and the weakness of the *waning*(suy yếu) Liang Dynasty. This secured 60 years of independence for Viet Nam. But following *regime*(chế độ) change and *consolidation*(hợp nhất) of power in China, the Sui(swā - Nhà Đường) sent *overwhelmingly* (áp đảo) large army to reestablish(thành lập lại) control over VN in 602.
+3. Third chinese domination of VN (602-938): Ngo Quyen's destruction Southen Han *armada*(áo giáp) at the *naval*(hải quân) Battle of Bạch Đằng river. This time remark a long freedom of VN thought our another dynastys: Dinh, Lê, Lý, Trần, Hồ.
+4. Fourth chinese domination of VN (1407 - 1427): a 20-year occupation by Ming dynasty army, Lê Lợi's defeat of the Chinese at Battle Tốt Động - Chúc Động and Battle Chi Lăng - Xương Giang. 
+After this time, VN prevented all invasion of chinese.
+
 
 * History
 ..* historical background
@@ -27,6 +32,7 @@ Nhà Chu (Zhou dynasty),
 Nhà Tùy (Sui dynasty), 
 Nhà Hạ (Xia dynasty), 
 Nhà Lương (Liang dynasty),
+Nhà Tân (Xin dynasty)
 HW 20/03: 
 Co 4 giai doan xâm lược 
 1. 111 TCN - 39: End by Trưng Sister,Su Ding (Tô Định) Thi sách, có giả thuyết khác là từ năm 207 BC.  Han dynasty.
