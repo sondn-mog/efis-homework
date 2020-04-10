@@ -1,3 +1,8 @@
+09/04/2020
+land in OQ costs an arm and leg!
+no afford large facade, flag salute ceremony, yearbook
+
+
 * 19/03/2020 *
 
 [Occupation](https://dictionary.cambridge.org/dictionary/english/occupation?q=Occupation "Sự chiếm hữu") of Vietnam by China
